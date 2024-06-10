@@ -1,5 +1,4 @@
 
-https://i.pinimg.com/originals/06/9b/24/069b24520220ccb8996c51d54b051563.gif
 <!--
 **nervk4uai/nervk4uai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
