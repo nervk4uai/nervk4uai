@@ -10,7 +10,8 @@ lonely asa :c
 
 
 
- 
+ ![picmix com_2267151](https://github.com/nervk4uai/nervk4uai/assets/166207296/3cf61170-547a-429f-8d7c-b9940f1d7042)
+
 
 
 
