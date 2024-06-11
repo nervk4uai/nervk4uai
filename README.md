@@ -72,6 +72,8 @@
 
 
 
+![picmix com_2592590](https://github.com/nervk4uai/nervk4uai/assets/166207296/ceea4663-844a-41fc-b151-41650ab80bb0)![picmix com_2546941](https://github.com/nervk4uai/nervk4uai/assets/166207296/b6a3cfed-bddf-4c17-816e-b82186495bc2)
+
 
 
 
