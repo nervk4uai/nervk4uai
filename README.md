@@ -16,8 +16,9 @@ lonely asa :c
 
 
 
+![picmix com_1971908](https://github.com/nervk4uai/nervk4uai/assets/166207296/2e62f9e5-e2f2-461d-aba8-a8f661f4b161)
 
-![picmix com_1793914](https://github.com/nervk4uai/nervk4uai/assets/166207296/eb87ad5e-8d1c-4d21-aa44-9ec6e140ee5b)
+
 
 
 
