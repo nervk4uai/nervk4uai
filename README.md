@@ -22,6 +22,7 @@
 ![picmix com_953253](https://github.com/nervk4uai/nervk4uai/assets/166207296/1ed700f7-3737-4530-bb78-eaf65d846109)![picmix com_953253](https://github.com/nervk4uai/nervk4uai/assets/166207296/27d729e4-475c-4709-9e90-5819a41e77a2)
 
 ![picmix com_1773488](https://github.com/nervk4uai/nervk4uai/assets/166207296/4fbddebc-94bf-42ed-9485-f117a62155a7)![picmix com_2416289](https://github.com/nervk4uai/nervk4uai/assets/166207296/0934be4f-15fa-4f89-b823-fb0026335e80) 
+
 ![picmix com_269449](https://github.com/nervk4uai/nervk4uai/assets/166207296/b0c8d1b1-294e-43b4-8588-15aeacdcbfdc)![picmix com_269449](https://github.com/nervk4uai/nervk4uai/assets/166207296/b9452eaf-47fa-4bc7-bac5-e5439ffb5c7a)
 ![picmix com_2500563](https://github.com/nervk4uai/nervk4uai/assets/166207296/addbd3b1-2dfe-43fc-9ac5-90699f255fc2)![picmix com_2601485](https://github.com/nervk4uai/nervk4uai/assets/166207296/be3f82d4-ec38-4005-95b8-61971c860740)
 ![picmix com_2139675](https://github.com/nervk4uai/nervk4uai/assets/166207296/ea9c2df2-3b9b-4558-8c21-2e8e28b2fa0d)![picmix com_1971908](https://github.com/nervk4uai/nervk4uai/assets/166207296/4951ebaf-a5ec-45d8-9ab2-61804b0834c7)
