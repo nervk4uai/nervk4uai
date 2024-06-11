@@ -49,7 +49,8 @@
 
 
 ![picmix com_2606491](https://github.com/nervk4uai/nervk4uai/assets/166207296/402fb2c0-159d-4cfa-b6ce-ed07dbaee99b)
-lonely asa :c
+lonely asa :c ![picmix com_2401261](https://github.com/nervk4uai/nervk4uai/assets/166207296/c3411e43-8ffb-4570-a75b-7f5bed4330e0)
+
 
 
 
