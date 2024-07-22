@@ -79,7 +79,7 @@
 
 
 
-
+![picmix com_2475853](https://github.com/nervk4uai/nervk4uai/assets/166207296/9daf630c-bba2-41f4-afa2-971780e1fe4f)
 
 
 
