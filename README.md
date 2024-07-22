@@ -70,9 +70,6 @@
 ![picmix com_11701601](https://github.com/nervk4uai/nervk4uai/assets/166207296/75bffaf5-a82b-40b0-97fa-8789036fd6b2)![picmix com_11736777](https://github.com/nervk4uai/nervk4uai/assets/166207296/235f7eb1-eb4a-4ab3-a8ee-17db8e4117b4)
 
 
-![picmix com_2635033](https://github.com/user-attachments/assets/454fbac6-50e6-4c10-832b-89a08ed5cbc2)![picmix com_2588342](https://github.com/user-attachments/assets/787752e6-683d-4ca6-9bfb-0656a321a09a)
-
-
 ![picmix com_2606491](https://github.com/nervk4uai/nervk4uai/assets/166207296/402fb2c0-159d-4cfa-b6ce-ed07dbaee99b) 𝙖𝙡𝙤𝙣𝙚 𝙖𝙨𝙖 :𝙘
 
 
