@@ -70,7 +70,8 @@
 ![picmix com_11701601](https://github.com/nervk4uai/nervk4uai/assets/166207296/75bffaf5-a82b-40b0-97fa-8789036fd6b2)![picmix com_11736777](https://github.com/nervk4uai/nervk4uai/assets/166207296/235f7eb1-eb4a-4ab3-a8ee-17db8e4117b4)
 
 
-![picmix com_11920653](https://github.com/user-attachments/assets/ef9130fc-6766-43c3-94a4-8d8a694f0dde)
+![picmix com_11920653](https://github.com/user-attachments/assets/ef9130fc-6766-43c3-94a4-8d8a694f0dde)![picmix com_11920676](https://github.com/user-attachments/assets/61a33e87-3e31-44eb-952a-3c9137cd0814)
+
 
 
 
