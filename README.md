@@ -78,7 +78,8 @@
 
 
 
-![picmix com_11920653](https://github.com/user-attachments/assets/ef9130fc-6766-43c3-94a4-8d8a694f0dde)![picmix com_11920676](https://github.com/user-attachments/assets/61a33e87-3e31-44eb-952a-3c9137cd0814)
+![picmix com_11920676](https://github.com/user-attachments/assets/57c71100-dfd4-4579-b2e0-638fd98e192e)![picmix com_11920653](https://github.com/user-attachments/assets/d0042ee8-dd8c-49e4-98e0-c32323a7ce42)
+
 
 
 
