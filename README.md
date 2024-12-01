@@ -69,8 +69,7 @@
 
 
 
-![picmix com_11701601](https://github.com/nervk4uai/nervk4uai/assets/166207296/75bffaf5-a82b-40b0-97fa-8789036fd6b2)![picmix com_2660026](https://github.com/user-attachments/assets/973b53a4-5bdd-49b0-a743-6940d76afe4d)
-![picmix com_11736777](https://github.com/nervk4uai/nervk4uai/assets/166207296/235f7eb1-eb4a-4ab3-a8ee-17db8e4117b4)![d5c7c33df4f35257bd44f57281f2d94f](https://github.com/user-attachments/assets/e2080382-b12d-468c-88c5-37a24b111181)![picmix com_1514242](https://github.com/user-attachments/assets/0f86b218-a23c-4dae-9603-5c35c2d0663a)
+![picmix com_11701601](https://github.com/nervk4uai/nervk4uai/assets/166207296/75bffaf5-a82b-40b0-97fa-8789036fd6b2)![picmix com_11736777](https://github.com/nervk4uai/nervk4uai/assets/166207296/235f7eb1-eb4a-4ab3-a8ee-17db8e4117b4)![d5c7c33df4f35257bd44f57281f2d94f](https://github.com/user-attachments/assets/e2080382-b12d-468c-88c5-37a24b111181)![picmix com_1514242](https://github.com/user-attachments/assets/0f86b218-a23c-4dae-9603-5c35c2d0663a)
 
 
 
@@ -87,8 +86,7 @@
 
 
 
-![picmix com_11920676](https://github.com/user-attachments/assets/57c71100-dfd4-4579-b2e0-638fd98e192e)![picmix com_2649823](https://github.com/user-attachments/assets/34af874e-c0a5-4ab5-b960-7489691e1321)
-![picmix com_11920653](https://github.com/user-attachments/assets/d0042ee8-dd8c-49e4-98e0-c32323a7ce42)![picmix com_11920745](https://github.com/user-attachments/assets/871f6cda-c45a-4693-947c-6b47fb251c7c)![picmix com_2591341](https://github.com/user-attachments/assets/62f50599-ce24-4bab-976b-ca45a4397538)
+![picmix com_11920676](https://github.com/user-attachments/assets/57c71100-dfd4-4579-b2e0-638fd98e192e)![picmix com_2660026](https://github.com/user-attachments/assets/dffda924-140f-41b4-8135-77e76a29d193)![picmix com_2649823](https://github.com/user-attachments/assets/34af874e-c0a5-4ab5-b960-7489691e1321)![picmix com_11920653](https://github.com/user-attachments/assets/d0042ee8-dd8c-49e4-98e0-c32323a7ce42)![picmix com_11920745](https://github.com/user-attachments/assets/871f6cda-c45a-4693-947c-6b47fb251c7c)![picmix com_2591341](https://github.com/user-attachments/assets/62f50599-ce24-4bab-976b-ca45a4397538)
 
 
 
