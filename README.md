@@ -87,7 +87,7 @@
 
 
 ![picmix com_11920676](https://github.com/user-attachments/assets/57c71100-dfd4-4579-b2e0-638fd98e192e)![picmix com_2649823](https://github.com/user-attachments/assets/34af874e-c0a5-4ab5-b960-7489691e1321)
-![picmix com_11920653](https://github.com/user-attachments/assets/d0042ee8-dd8c-49e4-98e0-c32323a7ce42)![picmix com_11920745](https://github.com/user-attachments/assets/871f6cda-c45a-4693-947c-6b47fb251c7c)![Uploading picmix.com_2671903.png…]()
+![picmix com_11920653](https://github.com/user-attachments/assets/d0042ee8-dd8c-49e4-98e0-c32323a7ce42)![picmix com_11920745](https://github.com/user-attachments/assets/871f6cda-c45a-4693-947c-6b47fb251c7c)![picmix com_2671903](https://github.com/user-attachments/assets/5a34aa08-e7ad-4e81-bae2-83bd487806b0)
 
 
 
